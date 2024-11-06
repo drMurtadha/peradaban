@@ -12,3 +12,19 @@ Beberapa kesenjangan kajian yang mungkin menyumbang kepada penubuhan Institut Pe
 	5.	Kekurangan Pendidikan Nilai dan Sejarah Nasional dalam Kurikulum: Sistem pendidikan formal kurang memberi penekanan kepada aspek peradaban dan sejarah negara secara mendalam, menyebabkan keperluan kepada institut khusus yang memberi fokus kepada aspek ini.
 
 Institut ini diharapkan dapat mengisi kesenjangan ini melalui penyelidikan, pendidikan, dan pembinaan pengetahuan yang berasaskan konteks tempatan.
+
+## Persoalan kajian
+Berikut adalah beberapa persoalan penyelidikan yang relevan dengan penubuhan Institut Peradaban dan Kenegaraan:
+
+	1.	Bagaimana pemahaman peradaban tempatan boleh ditingkatkan melalui kajian dan pendidikan di peringkat universiti?
+	2.	Apakah faktor-faktor yang menyumbang kepada penurunan kesedaran kenegaraan dan patriotisme dalam kalangan generasi muda di Malaysia?
+	3.	Bagaimana integrasi budaya dan etnik di Malaysia boleh diperkukuhkan melalui pendekatan peradaban dan kenegaraan?
+	4.	Apakah kekuatan dan kelemahan teori peradaban Barat apabila diterapkan dalam konteks kenegaraan Malaysia?
+	5.	Bagaimanakah sistem pendidikan formal di Malaysia boleh diperbaiki untuk lebih menekankan nilai kenegaraan dan sejarah tempatan?
+	6.	Apakah impak pendidikan peradaban dan kenegaraan terhadap pembentukan identiti nasional dalam kalangan pelajar universiti?
+	7.	Bagaimana kajian peradaban tempatan dapat menyumbang kepada pembentukan dasar yang lebih inklusif dan memahami kepelbagaian budaya di Malaysia?
+	8.	Apakah peranan media sosial dan digital dalam menyebarkan pemahaman tentang peradaban dan kenegaraan kepada masyarakat Malaysia?
+	9.	Bagaimana sejarah dan peradaban Malaysia boleh dijadikan model pendidikan kenegaraan yang lebih relevan untuk konteks masa kini?
+	10.	Apakah mekanisme yang paling efektif untuk menilai kesan pendidikan peradaban dan kenegaraan terhadap perpaduan nasional?
+
+Persoalan-persoalan ini bertujuan untuk membimbing kajian-kajian yang dapat memberi panduan dalam memperkukuhkan nilai peradaban dan kenegaraan serta membina identiti nasional di Malaysia.
