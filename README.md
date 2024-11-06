@@ -1,2 +1,3 @@
-# peradaban
+# Peradaban
+## Pernyataan masalah
 Pernyataan masalah yang mencetuskan penubuhan Institut Peradaban dan Kenegaraan di Universiti Teknologi Malaysia (UTM) biasanya berfokus pada keperluan untuk memperkukuhkan pemahaman dan kesedaran pelajar serta masyarakat umum terhadap peradaban dan nilai kenegaraan Malaysia. Dengan adanya institut ini, ia bertujuan mengisi jurang dalam pendidikan formal yang kurang menekankan aspek sejarah, budaya, dan nilai kenegaraan, sekali gus membantu dalam membentuk identiti kebangsaan yang kukuh serta memahami peranan negara dalam konteks global.
